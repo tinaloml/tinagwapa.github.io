@@ -1,2 +1,2 @@
 # tinagwapa.github.io
-wala lanh
+wala lang
